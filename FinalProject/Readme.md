@@ -1,0 +1,2 @@
+My name is Lorna Harding.  I am a statistical consultant to several Irish and UK firms, through my company called The Research Perspective.  
+In my spare time I am a board member of a non profit called Lalafofofo,which is concerend with providing lunch programs to poverty stricken students in Tanzania, Africa.
